@@ -13,3 +13,7 @@ eine Untersuchung am Beispiel der Studio-
 
 - Buket Sacu
 - Merve Ayse Aymergen
+
+# Links
+
+folgender Link gehört zum Foto : https://wildevanrhee.de/blog/wie-storytelling-unsere-kaufentscheidung-beeinflusst/
